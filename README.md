@@ -6,4 +6,4 @@ Looking for friends!! actively!!! ⋆.ೃ࿔*:･
 
 social 3w2 ENTJ‧₊◜·°˖˚♡
 
-I'm doing well, I'm drawing, praise me˚ ༘ ೀ⋆｡˚
+My favorite flowers are lilacs.˚ ༘ ೀ⋆｡˚
