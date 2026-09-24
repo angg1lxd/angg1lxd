@@ -7,3 +7,4 @@ Looking for friends!! actively!!! ⋆.ೃ࿔*:･
 social 3w2 ENTJ‧₊◜·°˖˚♡
 
 My favorite flowers are lilacs.˚ ༘ ೀ⋆｡˚
+talk to me😭
