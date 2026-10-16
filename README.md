@@ -1,4 +1,4 @@
-<img width="736" height="552" alt="image" src="https://github.com/user-attachments/assets/9ee1e21b-9e48-4884-b3ae-9e9d9adc44e7" />
+<img width="450" height="450" alt="image" src="https://github.com/user-attachments/assets/0e301d0b-2dbc-4694-8032-485e39c5aacd" />
 
 Looking for friends!! actively!!! ⋆.ೃ࿔*:･
 
