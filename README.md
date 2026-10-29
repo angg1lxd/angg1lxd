@@ -1,4 +1,4 @@
-`~ <img width="576" height="324" alt="image" src="https://github.com/user-attachments/assets/55c21f85-b368-4693-9a4e-2d3429cf19fb" /> ~`
+<img width="576" height="324" alt="image" src="https://github.com/user-attachments/assets/55c21f85-b368-4693-9a4e-2d3429cf19fb" /> 
 
 
 Looking for friends!! actively!!! ⋆.ೃ࿔*:･
