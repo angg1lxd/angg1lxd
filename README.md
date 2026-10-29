@@ -1,4 +1,4 @@
-<img width="576" height="324" alt="image" src="https://github.com/user-attachments/assets/55c21f85-b368-4693-9a4e-2d3429cf19fb" /> 
+<iframe src="https://assets.pinterest.com/ext/embed.html?id=876302040006403513" height="354" width="450" frameborder="0" scrolling="no" ></iframe>
 
 
 Looking for friends!! actively!!! ⋆.ೃ࿔*:･
